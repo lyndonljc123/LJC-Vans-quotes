@@ -1,0 +1,1 @@
+# LJC-Vans-quotes
